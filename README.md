@@ -1,0 +1,2 @@
+# kybernetickanavnada
+Kyberneticka Navnada
